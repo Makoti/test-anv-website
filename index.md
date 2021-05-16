@@ -14,7 +14,7 @@ Nous intervenons blablabla
 
 ## Restez informés de nos actions
 
-[Vous pouvez vous innscrire à notre Newsletter pour avoir des nouvelles de temps en temps.](https://5c5fda8f.sibforms.com/serve/MUIEAF6QtB9EYlf3imKO2HwfzoykD7AESewB5Zns2930ElRYIQ0F_iPw-dPhRDqcq4J1VLpkxT_I1Ska0paRp-P0dw6Ax2MC_ngWl6EPDooAmkXF3fgO-h9se-voRg9AbHAA0fcJmPnuE80yLgf9OwLiH8Fg_SG-qMzFkbqFn8sjXC1F-HwHWCvCZ3Kiz-aWJbvBTUu6Fa9qV35S)
+[Vous pouvez vous inscrire à notre Newsletter pour avoir des nouvelles de temps en temps.](https://5c5fda8f.sibforms.com/serve/MUIEAF6QtB9EYlf3imKO2HwfzoykD7AESewB5Zns2930ElRYIQ0F_iPw-dPhRDqcq4J1VLpkxT_I1Ska0paRp-P0dw6Ax2MC_ngWl6EPDooAmkXF3fgO-h9se-voRg9AbHAA0fcJmPnuE80yLgf9OwLiH8Fg_SG-qMzFkbqFn8sjXC1F-HwHWCvCZ3Kiz-aWJbvBTUu6Fa9qV35S)
 
 ## Nous contacter pour plus d'informations
 
@@ -30,4 +30,4 @@ Vous pouvez également contacter les mailles régionales pour des informations p
 
 [Ces mots qui libèrent](https://youtu.be/nmPYRgi8VFg)
 
-[Rand'Honnaur, cla justice enn chemin](https://youtu.be/u2wTsOaU5Og)
+[Rand'Honneur, la justice en chemin](https://youtu.be/u2wTsOaU5Og)
