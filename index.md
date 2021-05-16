@@ -29,4 +29,5 @@ Vous pouvez également contacter les mailles régionales pour des informations p
 ## Inspiration de ce qui se fait :
 
 [Ces mots qui libèrent](https://youtu.be/nmPYRgi8VFg)
+
 [Rand'Honnaur, cla justice enn chemin](https://youtu.be/u2wTsOaU5Og)
