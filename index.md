@@ -1,7 +1,4 @@
-![texte alt][ANV]
-
-[ANV]: https://github.com/Makoti/test-anv-website/blob/gh-pages/anv_logo.png "Logo ANV Artisans de non-violence"
-
+![texte alt](https://github.com/Makoti/test-anv-website/blob/gh-pages/anv_logo.png "Logo ANV Artisans de non-violence")
 
 ## Artisans de non-violence 
 
