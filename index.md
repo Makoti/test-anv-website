@@ -1,6 +1,6 @@
 ## Artisans de non-violence 
 
-contribuer ensemble à une justice qui prenne en compte chacune et chacun
+**contribuer ensemble à une justice qui prenne en compte chacune et chacun**
 
 ## Qui sommes-nous ?
 
